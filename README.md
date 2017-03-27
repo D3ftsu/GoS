@@ -1,1 +1,1 @@
-# GoS
+# fuck you platy ¯\_(ツ)_/¯
